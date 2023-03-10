@@ -1,4 +1,4 @@
-I'm Russel Musasa, a passionate Software Engineer. I believe that information technology can improve the lives of our communities and our business processes when used wisely.
+I'm Russel Musasa, a passionate Software Engineer. I believe that information technology can improve the lives of our communities and our business processes when used efficiently, wisely and with committement.
 
 As a software engieer I have worked with advanced topics Java programming language then built some of the amazing applications that make customer's life easier and bring profit to the companies I have been working for, and I'm ready to discuss on those fantastic projects.
 
